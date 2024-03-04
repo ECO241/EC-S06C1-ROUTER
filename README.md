@@ -1,0 +1,1 @@
+# EC-S06C1-ROUTER
